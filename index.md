@@ -11,7 +11,9 @@ By Z
 #### Short Story   5/28/19
 
 Hi I know it’s soon to write but I have to much time on my hands.Which is mostly because school is almost out.yay!Now this is not as much a story as it is just something to just write about.Now just warning you that this is going to be a short story if you can really call it that.Now if you have seen my subtitle then you will know that it says,An Owl for your Thoughts.If you’re curious than might of thought what that meant,and now I’m going to explain that to you now.I don’t know how and why but I really like owls. Their my favorite animal.  
-I will try to write daliy and I will inform everyone if I change my posting schedule post tomorow
+I will try to write daliy but with school it might be hard.But like today I might post more then daliy 
 
 
 by Z
+
+
