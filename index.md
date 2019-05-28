@@ -1,4 +1,4 @@
-#### Horses
+#### Horses    5/28/19
 
 Today I am going to talk about horses.You would think that I was just going to my  favorite ice cream shop, thinking how good the ice cream is when I see or should I say my sister said she saw a friend.Now this friend happened to be a farmer.Not just a farmer,a horse farmer.When my sister starts talking about horses,you’re stuck there for a hour.But luckily, we were only there for fifteen minutes.We ended up driving up their driveway.  
 	Next thing I know,I was looking at my hope to be future horse.he was great!He’s fifteen,one person said.I didn’t want to leave but I knew I had to.The rest of the ride home,I was daydreaming about that horse.he was perfect just how calm he was I liked.Here I am writing about this and I can’t wait to get him,that is if I am getting him.  
@@ -8,6 +8,6 @@ I'm so excited about writing my first blog and I will start write some more stor
 
 By Z
 
-#### Short Story  
+#### Short Story   5/28/19
 
 Hi I know it’s soon to write but I have to much time on my hands.Which is mostly because school is almost out.yay!Now this is not as much a story as it is just something to just write about.Now just warning you that this is going to be a short story if you can really call it that.Now if you have seen my subtitle then you will know that it says,An Owl for your Thoughts.If you’re curious than might of thought what that meant,and now I’m going to explain that to you now.I don’t know how and why but I really like owls. Their my favorite animal.  
