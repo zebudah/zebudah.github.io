@@ -4,7 +4,7 @@ Today I am going to talk about horses.You would think that I was just going to m
 	Next thing I know,I was looking at my hope to be future horse.he was great!He’s fifteen,one person said.I didn’t want to leave but I knew I had to.The rest of the ride home,I was daydreaming about that horse.he was perfect just how calm he was I liked.Here I am writing about this and I can’t wait to get him,that is if I am getting him.  
 	Now, I have been waiting for a horse for a long time so I am pretty excited  to get one.My sister knows a ton about horses so I’ve been around horses most of my life.So because of that I’ve always wanted a horse.  
 	Actually,I was going to get four ponies just a couple of days ago.Well, I might still get them.we just haven’t heard back from them.It all started with me and my sister looking for horses.Then We saw them.Four ponies.We decided to call,and guess what they said that we could get them!Because of that,for the next weekend I was overjoyed so I couldn’t think straight.Couple of days later and no call.We gave up.and started looking for more horses.Then,we found the thoroughbred. write more about this story later. 
-I'm so excited about writing my first blog and I will start write some more storys and some life storys. 
+I'm so excited about writing my first blog and I will start write some more storys.
 
 By Z
 
