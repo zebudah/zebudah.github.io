@@ -18,6 +18,9 @@ Hi I know it’s soon to write but I have to much time on my hands.Which is most
 I will try to write daliy but with school it might be hard.But like today I might post more then daliy.
 
 
-by Z
+By Z
 
 Hi I am sorry but I can't post today post tomorow
+Hi today I am going to talk quickly about horses.Now my sister got her horse.Her horse needs a friend and that means that I am going to get a horse.I am so happy about that.Like I said "I am going to quickly talk about horses" and that was my quick update.
+
+By Z
