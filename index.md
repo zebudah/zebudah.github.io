@@ -24,3 +24,12 @@ Hi I am sorry but I can't post today post tomorow
 Hi today I am going to talk quickly about horses.Now my sister got her horse.Her horse needs a friend and that means that I am going to get a horse.I am so happy about that.Like I said "I am going to quickly talk about horses" and that was my quick update.
 
 By Z
+
+
+
+#### Summer 6/26/19
+
+Hi! Wow it's summer so I can write more often.Sorry I've not been writing but like I said,I'll TRY to post daily.Now like the title said let's talk about summer.Schools over for most people I think.Anyways,I'll TRY to post tomrow.
+
+
+By Z
