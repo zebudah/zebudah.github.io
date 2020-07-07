@@ -2,7 +2,7 @@ title: Miss Zebudah
 description: An Owl for your Thoughts
 #google_analytics: UA-68379379-1
 #show_downloads: true
-theme: jekyll-theme-cayman
+theme: jekyll-theme-dinky
 
 gems:
   - jekyll-mentions
